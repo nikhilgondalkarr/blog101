@@ -1,0 +1,2 @@
+# blog101
+STAY HARD
